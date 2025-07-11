@@ -1,0 +1,2 @@
+# Powersync
+Unleash your potential
